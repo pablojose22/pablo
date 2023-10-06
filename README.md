@@ -7,5 +7,5 @@ Meu nome è Pablo José tenho 14 anos
 - Mas lembre-se o mais importante é que:
 - ## polenta com carne de frango é bão ##
 
-![](https://media.tenor.com/LY1SSPItsl8AAAAC/pedro-pedro-flamengo.gif)
+![](https://media.tenor.com/7TzEQ2nkWscAAAAM/funny-memes-discord.gif)
   
